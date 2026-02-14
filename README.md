@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-HEGR810310HCSRTL05
+HEGR810310HCSRTL05
